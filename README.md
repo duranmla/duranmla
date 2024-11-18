@@ -5,5 +5,5 @@ Here are some ideas to get you started:
 
 - 🔭 Passionate about the universe
 - 🌱 Love nature and fitness 💪
-- 📫 I still use X, perhaps you can send me a DM there
+- 📫 I still use X, perhaps you can send me a [@duranmla](https://x.com/duranmla)
 - ⚡ Competitive as f@#k!
