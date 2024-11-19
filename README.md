@@ -4,5 +4,5 @@ Full Stack Engineer with over a decade of experience in the industry, specialize
 
 - 🔭 Passionate about the universe
 - 🌱 Love nature and fitness 💪
-- 📫 I still use X, perhaps you can send me a [@duranmla](https://x.com/duranmla)
+- 📫 I still use X, perhaps you can send me a note at: [@duranmla](https://x.com/duranmla)
 - ⚡ Competitive as f@#k!
